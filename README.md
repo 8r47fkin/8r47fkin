@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @8r47fkin
-- 📫 reach me ...brat.fightklub.in
+- 📫 reach me ...bharathkumark@live.com
+
+- fightklub.in servers to be deactivated soon
 
 
 
